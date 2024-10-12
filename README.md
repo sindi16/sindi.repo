@@ -1,1 +1,1 @@
-Elements
+All the things you should know about my salon.
